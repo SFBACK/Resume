@@ -1,4 +1,4 @@
-# Resume - STEPHANIE FREUNDEL, LCB, EXCS, DBS 
+STEPHANIE FREUNDEL, LCB, EXCS, DBS 
 (212) 729-7242 aiexportops@gmail.com
 
 Communications Test Design, Inc (f.k.a. GIEC) West Chester, P.A.
