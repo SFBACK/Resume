@@ -3,25 +3,15 @@ STEPHANIE FREUNDEL, LCB, EXCS, DBS
 
 Communications Test Design, Inc (f.k.a. GIEC) West Chester, P.A.
 Global Trade & Customs Manager February 2018 – April 2025
-
 ~Defined enterprise global trade, customs, and export strategy for team through creation of a Global Center of Excellence
-
 ~Established new enterprise Export Management Officer and Export Controls Officer organizational framework
-
 ~Maintained senior customer relationships that helped expand services and cultivate new projects and revenue flows
-
 ~Mentored global enterprise team through region operations experts to improve clearances and reduce costs
-
 ~Directed global import, export, and SCS annual assessment program from kickoff through remediation
-
 ~Interfaced with legal team and external regulators to ensure consistent messaging and reduce overall risk for global enterprise
-
 ~Liaised with legal and internal stakeholders to improve awareness of valuation, Incoterms® strategy, transfer pricing triggers
-
 ~Mentored program and operations teams to flag export controls/ITAR risks for review with internal campaigns & training
-
 ~Leveraged AI to manage global tariff master, routing and shipping matrices, transactional processes, and develop procedures
-
 ~Managed GTM system initiatives for greenlight processes and new GTM system purchase and deployment
 
 Akin, Gump, Strauss, Hauer & Feld, LLP Washington, D.C.
