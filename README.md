@@ -1,26 +1,28 @@
-STEPHANIE FREUNDEL, LCB, EXCS, DBS 
-(212) 729-7242 aiexportops@gmail.com
+STEPHANIE FREUNDEL, LCB, EXCS, DBS<br>
+(212) 729-7242<br>
+aiexportops@gmail.com<br>
 
-Communications Test Design, Inc (f.k.a. GIEC) West Chester, P.A.
-Global Trade & Customs Manager 
-February 2018 – April 2025
-~Defined enterprise global trade, customs, and export strategy for team through creation of a Global Center of Excellence
-~Established new enterprise Export Management Officer and Export Controls Officer organizational framework
-~Maintained senior customer relationships that helped expand services and cultivate new projects and revenue flows
-~Mentored global enterprise team through region operations experts to improve clearances and reduce costs
-~Directed global import, export, and SCS annual assessment program from kickoff through remediation
-~Interfaced with legal team and external regulators to ensure consistent messaging and reduce overall risk for global enterprise
-~Liaised with legal and internal stakeholders to improve awareness of valuation, Incoterms® strategy, transfer pricing triggers
-~Mentored program and operations teams to flag export controls/ITAR risks for review with internal campaigns & training
-~Leveraged AI to manage global tariff master, routing and shipping matrices, transactional processes, and develop procedures
-~Managed GTM system initiatives for greenlight processes and new GTM system purchase and deployment
+<p>Global Trade & Customs Manager<br>
+Communications Test Design, Inc (f.k.a. GIEC), West Chester, P.A.<br>
+February 2018 – April 2025<br>
+~Defined enterprise global trade, customs, and export strategy for team through creation of a Global Center of Excellence<br>
+~Established new enterprise Export Management Officer and Export Controls Officer organizational framework<br>
+~Maintained senior customer relationships that helped expand services and cultivate new projects and revenue flows<br>
+~Mentored global enterprise team through region operations experts to improve clearances and reduce costs<br>
+~Directed global import, export, and SCS annual assessment program from kickoff through remediation<br>
+~Interfaced with legal team and external regulators to ensure consistent messaging and reduce overall risk for global enterprise<br>
+~Liaised with legal and internal stakeholders to improve awareness of valuation, Incoterms® strategy, transfer pricing triggers<br>
+~Mentored program and operations teams to flag export controls/ITAR risks for review with internal campaigns & training<br>
+~Leveraged AI to manage global tariff master, routing and shipping matrices, transactional processes, and develop procedures<br>
+~Managed GTM system initiatives for greenlight processes and new GTM system purchase and deployment<br></p>
 
-Akin, Gump, Strauss, Hauer & Feld, LLP Washington, D.C.
-Senior Trade & Customs Specialist, International Trade Section August 2017 – January 2018
-~Derived sampling solutions to prepare clients for CBP audits, and prior disclosures that reduced penalty risk
-~Reviewed classifications, reference guides, and marketing materials that supported 3PL operations team
-~Researched FDA, CFS, FTZ, ECC facility issues, validated steel certificates and filings to support teams
-~Prepared immigration petitions for TN, visas, and T lawful permanent residence
+<p>Senior Trade & Customs Specialist, International Trade Section<br>
+Akin, Gump, Strauss, Hauer & Feld, LLP, Washington, D.C.<br>
+August 2017 – January 2018<br>
+~Derived sampling solutions to prepare clients for CBP audits, and prior disclosures that reduced penalty risk<br>
+~Reviewed classifications, reference guides, and marketing materials that supported 3PL operations team<br>
+~Researched FDA, CFS, FTZ, ECC facility issues, validated steel certificates and filings to support teams<br>
+~Prepared immigration petitions for TN, visas, and T lawful permanent residence<br></p>
 
 KPMG LLP Philadelphia, P.A.
 Consultant, Trade and Customs Practice April 2015 – August 2017
