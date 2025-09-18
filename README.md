@@ -67,17 +67,18 @@ New York, N.Y.<br>
 ~Managed business proposals, RFP responses to obtain multiple million-dollar project closings, and other matters<br>
 ~Drafted FOIA requests, prior disclosures, protests, and Export License Applications that resulted in revenue<br></p>
 
-<p>Columbia University, M.P.A. in International Economic Policy<br>
-New York University, Diploma in Paralegal Studies<br>
-Michigan State University, B.A. in Political Science<br></p>
+<p><b>Columbia University</b>, M.P.A. in International Economic Policy<br>
+<b>New York University</b>, Diploma in Paralegal Studies<br>
+<b>Michigan State University</b>, B.A. in Political Science<br></p>
 
-<p>Export Controls Specialist (Issued 02/22/2018) 
-U.S. Customs Broker License (Issued 01/13/2014)
-Drawback Specialist (Issued 04/22/2021) 
-AKC and UKI Small Dog Agility Handler 2021 – Present
-KPMG Spark Mentor, Spring 2017 
-New York Cares, Volunteer, 2012 – 2015
-Fashion Institute of Technology, Global Trade Study 
-Phi Theta Kappa, All-US and NY Team, Member, 2010 – 2012
-Alpha Phi Omega, Executive Board, 2002 – 2003
-U.S. Figure Skating Collegiate Scholar 1998</p>
+<p><b>Export Controls Specialist</b> (Issued 02/22/2018)<br>
+<b>U.S. Customs Broker License</b> (Issued 01/13/2014)<br>
+<b>Drawback Specialist</b> (Issued 04/22/2021)<br>
+<b>Global Trade Study</b>, Fashion Institute of Technology (3.89 gpa)<br></p>
+
+<p><i>AKC and UKI Small Dog Agility Handler 2021 – Present<br>
+KPMG Spark Mentor, Spring 2017<br>
+New York Cares, Volunteer, 2012 – 2015<br>
+Phi Theta Kappa, All-US and NY Team, Member, 2010 – 2012<br>
+Alpha Phi Omega, Executive Board, 2002 – 2003<br>
+U.S. Figure Skating Collegiate Scholar 1998<br></i></p>
