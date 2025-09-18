@@ -2,7 +2,8 @@ STEPHANIE FREUNDEL, LCB, EXCS, DBS
 (212) 729-7242 aiexportops@gmail.com
 
 Communications Test Design, Inc (f.k.a. GIEC) West Chester, P.A.
-Global Trade & Customs Manager February 2018 – April 2025
+Global Trade & Customs Manager 
+February 2018 – April 2025
 ~Defined enterprise global trade, customs, and export strategy for team through creation of a Global Center of Excellence
 ~Established new enterprise Export Management Officer and Export Controls Officer organizational framework
 ~Maintained senior customer relationships that helped expand services and cultivate new projects and revenue flows
